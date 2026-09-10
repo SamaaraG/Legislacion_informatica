@@ -59,3 +59,6 @@ Garantiza que todas las personas tengan <u>derechos humanos y protección legal<
 ## ==Actividad 1.4==
 
 ![[Pasted image 20260907102859.png]]
+## ==Actividad 1.5
+
+![[Pasted image 20260910103122.png]]
